@@ -2,7 +2,9 @@
 
 ## Seungho Park
 
-- Strive to become a Specialist with a Blueprint called Popularization of Blockchain.
+- Strive to become a Software Engineer in Working & Growing Together.
+
+- Strive to become a Specialist with a Blueprint called Popularization of Reformation Technology.
 
 - [Profile Introduction](https://private-sinabro.notion.site/90b88af31a444a3586e87351af75acf8?pvs=4)
 
